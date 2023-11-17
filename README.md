@@ -1,6 +1,6 @@
- --------------------------------------------   SHRI GANPATI DOON STELL    ------------------------------------------
+ --------------------------------------------   SHRI GANPATI DOON STEEL    ------------------------------------------
 
- SHRI GANPATI DOON STELL  IS THE  STELL HARDWARE SHOP WEBSITE.
+ SHRI GANPATI DOON STEEL  IS THE  STEEL HARDWARE SHOP WEBSITE.
  WHERE YOU CAN VIEW  , ADD TO CART  , VIEWS THE PRODUCR DESCRIPTION  , CONTACT TO THE OWNER WITH YOUR QUERY ......
 
  HOME PAGE --
